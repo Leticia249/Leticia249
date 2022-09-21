@@ -1,4 +1,4 @@
-- 👋 oi, eu sou Leticia249
+- 👋 oi, eu sou elza.ireno@escola.pr.gov.br
 - 📚 a faculdade que eu quero cursar é educação física 
 - 🧷 atualmente estou estudando no ensino médio 
 - 🏋🏼 desejo ser personal trainer
